@@ -1,1 +1,1 @@
-# GET-FIT
+# GET FIT
